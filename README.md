@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Hola, este repositorio/readme lo cree solo con fines de buscar trabajo como Scrum Master o como Asistente de Project Manager
+mi interes es el de trabajar solo remoto, mi mayor productividad se da en jornadas cortas pero intensas
+es por eso que busco partime o 6 horas. 
+Tengo 2 años de experincia
+
+Saludos Cordiales
